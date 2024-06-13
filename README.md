@@ -20,7 +20,7 @@ Over the past four years, I've had the opportunity to work on a variety of proje
 
 If you're interested in collaborating or need assistance with your projects, feel free to reach out! I'm here to help you achieve your goals. Thank you for taking the time to read about me.
 
-- **LinkedIn:** [Your LinkedIn Profile](https://www.linkedin.com/in/joacco/)
-- **Email:** [Your Email Address](mailto:joaccofranc02@icloud.com)
+- **LinkedIn:** [My LinkedIn Profile](https://www.linkedin.com/in/joacco/)
+- **Email:** [My Email Address](mailto:joaccofranc02@icloud.com)
 
 Let's build something amazing together! 🚀
